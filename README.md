@@ -19,6 +19,9 @@
 I stand with freedom,with peace and love,and more important,with you.
 
 [![Anurag's GitHub stats](https://github-readme-stats.vercel.app/apiKitahasiKawaanuraghazra)](https://github.com/anuraghazra/github-readme-stats)
+
+[![Top Langs](https://github-readme-stats.vercel.app/api/top-langs/KitahasiKawaanuraghazra&layout=compact)](https://github.com/anuraghazra/github-readme-stats)
+
 <!--
 **KitahasiKawa/KitahasiKawa** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
