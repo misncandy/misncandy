@@ -18,6 +18,9 @@
 
 I stand with freedom,with peace and love,and more important,with you.
 
+> 总有一天乌云会全部散去   
+> 我们将在没有黑暗的地方见面   
+> 并在自由的阳光下各抒己见   
 ![github langs](https://github-readme-stats.vercel.app/api/top-langs?username=kitahasikawa&show_icons=true&title_color=9483f1&icon_color=9483f1&layout=compact)
 
 
