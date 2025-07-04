@@ -8,7 +8,8 @@ I hope the words here can bring you some happiness, thinking, courage, touching 
 💬 zh/en is ok!  
 
 - 🏫 Ordinary China Mainland college students  
-- ⚖️ law student  
+- ⚖️ law student
+- 📝 Happy to provide legal advice/services on civil and administrative law
 - 👩‍💻 Social science enthusiast  
 - 🏳️‍⚧️ Transgender,she/her  
 - 🏳️‍🌈 Trans lesbian  
@@ -25,16 +26,15 @@ There is no need to ask what universal values ​​are, universal values ​​
 > “死亡是一种权力，这样的权力可以保持最后的自我。”  
 > "Death is a power, such power can maintain the last self."    
 
-On the left is my contact information, welcome to contact me!
-I am happy to provide legal advice on civil and administrative law
+
 
 If they could make me stop loving you–—that would be real betrayal.    
 
 I stand with freedom,with peace and love,and more important,with you.   
 
-One day the clouds will all dissipate,  
-We shall meet in the place where there is no darkness,   
-And express our opinions in the sunshine of freedom.    
+> One day the clouds will all dissipate,  
+> We shall meet in the place where there is no darkness,   
+> And express our opinions in the sunshine of freedom.    
 
 ![风会停的，或许](photo_2025-07-04_17-32-03.jpg)
 > 等到一切结束之后 风会停的 
