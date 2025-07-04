@@ -13,16 +13,15 @@
 左侧为本人联系方式，欢迎找我玩！
 可以提供民事与行政法方面的法律咨询哦
 
->If they could make me stop loving you–—that would be real betrayal.   
->如果他們能夠讓我停止愛你–—那才是真正的背叛。
+If they could make me stop loving you–—that would be real betrayal.   
+如果他們能夠讓我停止愛你–—那才是真正的背叛。
 
 I stand with freedom,with peace and love,and more important,with you.
+总有一天乌云会全部散去   
+我们将在没有黑暗的地方见面   
+并在自由的阳光下各抒己见
 
-> 总有一天乌云会全部散去   
-> 我们将在没有黑暗的地方见面   
-> 并在自由的阳光下各抒己见
->
-> 
+> 等到一切结束之后 风会停的 
 
 
 ![github langs](https://github-readme-stats.vercel.app/api/top-langs?username=kitahasikawa&show_icons=true&title_color=9483f1&icon_color=9483f1&layout=compact)
