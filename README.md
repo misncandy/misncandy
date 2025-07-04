@@ -2,18 +2,21 @@
 
 ## Hello World!
 
-Welcome to the Github account of Kitahasikawa/MisnCandy!   
-I hope the words here can bring you some happiness, thinking, courage, touching and strength.
+Welcome to the Github account of Kitahasikawa/MisnCandy!     
+I hope the words here can bring you some happiness, thinking, courage, touching and strength.    
 
-💬 zh/en is ok!
+💬 zh/en is ok!  
 
 - 🏫 Ordinary China Mainland college students  
 - ⚖️ law student  
 - 👩‍💻 Social science enthusiast  
 - 🏳️‍⚧️ Transgender,she/her  
-- 😷 A person with a mental illness  
-- 📚 Literature/social observation/social science article writing  
-- 📫 On the left is my contact information
+- 🏳️‍🌈 Trans lesbian  
+- 🎮 Maimai DX/osu/Civilization VII  
+- 📚 Literature/social observation/social science article writing    
+- 😷 A person with a bipolar disorder and mild schizophrenia    
+- 💊 Currently taking zolpidem/alprazolam/clonazepam    
+- 📫 On the left is my contact information    
 
 😘 Wish you can be free and happiness.  
 
