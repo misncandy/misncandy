@@ -22,7 +22,7 @@ I stand with freedom,with peace and love,and more important,with you.
 我们将在没有黑暗的地方见面   
 并在自由的阳光下各抒己见  
 
-![这是图片](photo_2025-07-04_16-53-19.jpg)
+![风会停的，或许](photo_2025-07-04_17-32-03.jpg)
 > 等到一切结束之后 风会停的 
 
 
