@@ -2,25 +2,36 @@
 
 ## Hello World!
 
-## 欢迎来到棉花糖/北桥川的Github账号！ 希望这里的文字能够给您带来些许快乐，思考，勇气，感动与力量
+Welcome to the Github account of Kitahasikawa/MisnCandy!   
+I hope the words here can bring you some happiness, thinking, courage, touching and strength.
 
-普通大陆法科生，社科爱好，愿你幸福而自由。   
-跨性别者MtF,she/her,~~精神病患者~~   
-不必追问普世价值为何，普世价值就在我们的心中。
+💬 zh/en is ok!
 
->“死亡是一种权力，这样的权力可以保持最后的自我。”
+- 🏫 Ordinary China Mainland college students  
+- ⚖️ law student  
+- 👩‍💻 Social science enthusiast  
+- 🏳️‍⚧️ Transgender,she/her  
+- 😷 A person with a mental illness  
+- 📚 Literature/social observation/social science article writing  
+- 📫 On the left is my contact information
 
-左侧为本人联系方式，欢迎找我玩！
-可以提供民事与行政法方面的法律咨询哦
+😘 Wish you can be free and happiness.  
 
-If they could make me stop loving you–—that would be real betrayal.   
-如果他們能夠讓我停止愛你–—那才是真正的背叛。    
+There is no need to ask what universal values ​​are, universal values ​​are in our hearts.  
 
-I stand with freedom,with peace and love,and more important,with you.  
+> “死亡是一种权力，这样的权力可以保持最后的自我。”  
+> "Death is a power, such power can maintain the last self."    
 
-总有一天乌云会全部散去   
-我们将在没有黑暗的地方见面   
-并在自由的阳光下各抒己见  
+On the left is my contact information, welcome to contact me!
+I am happy to provide legal advice on civil and administrative law
+
+If they could make me stop loving you–—that would be real betrayal.    
+
+I stand with freedom,with peace and love,and more important,with you.   
+
+One day the clouds will all dissipate,  
+We shall meet in the place where there is no darkness,   
+And express our opinions in the sunshine of freedom.    
 
 ![风会停的，或许](photo_2025-07-04_17-32-03.jpg)
 > 等到一切结束之后 风会停的 
