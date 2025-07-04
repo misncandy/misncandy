@@ -19,8 +19,8 @@ If they could make me stop loving you–—that would be real betrayal.
 I stand with freedom,with peace and love,and more important,with you.
 总有一天乌云会全部散去   
 我们将在没有黑暗的地方见面   
-并在自由的阳光下各抒己见
-
+并在自由的阳光下各抒己见  
+![图片alt] blob/main/photo_2025-07-04_16-53-19.jpg "图片title")
 > 等到一切结束之后 风会停的 
 
 
