@@ -3,7 +3,7 @@
 ## Hello World!
 
 Welcome to the Github account of Kitahasikawa/MisnCandy!     
-I hope the words here can bring you some happiness, thinking, courage, touching and strength.    
+Hope the words here can bring you some happiness, thinking, courage, touching and strength.    
 
 💬 zh/en is ok!  
 
@@ -40,7 +40,7 @@ I stand with freedom,with peace and love,and more important,with you.
 > 等到一切结束之后 风会停的 
 
 
-![github langs](https://github-readme-stats.vercel.app/api/top-langs?username=kitahasikawa&show_icons=true&title_color=9483f1&icon_color=9483f1&layout=compact)
+![github langs](https://github-readme-stats.vercel.app/api/top-langs?username=misncandy&show_icons=true&title_color=9483f1&icon_color=9483f1&layout=compact)
 
 
 <!--
