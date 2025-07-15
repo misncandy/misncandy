@@ -7,14 +7,14 @@ Hope the words here can bring you some happiness, thinking, courage, touching an
 
 💬 zh/en is ok!  
 
-- 🏫 Ordinary China Mainland college students  
-- ⚖️ law student
-- 📝 Happy to provide legal advice/services on civil and administrative law
+- 🏫 Ordinary China Mainland college students    
+- ⚖️ law student  
+- 📚 Happy to provide legal advice/services on civil and administrative law  
 - 👩‍💻 Social science enthusiast  
 - 🏳️‍⚧️ Transgender,she/her  
 - 🏳️‍🌈 Trans lesbian  
 - 🎮 Maimai DX/osu/Civilization VII  
-- 📚 Literature/social observation/social science article writing    
+- 📝 Literature/social observation/social science article writing    
 - 😷 A person with a bipolar disorder and mild schizophrenia    
 - 💊 Currently taking zolpidem/alprazolam/clonazepam    
 - 📫 On the left is my contact information    
