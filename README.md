@@ -8,7 +8,7 @@ Hope the words here can bring you some happiness, thinking, courage, touching an
 💬 zh/en is ok!  
 
 - 🍭 You can call me "棉花糖" or "北橋川" in Chinese. 
-- ~~🏫 Ordinary China Mainland college students~~
+- 🏫 Ordinary China Mainland college students
 - ⚖️ law student  
 - 📚 Happy to provide legal advice/services on civil and administrative law  
 - 👩‍💻 Social science enthusiast  
