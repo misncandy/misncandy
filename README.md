@@ -37,7 +37,7 @@ I stand with freedom,with peace and love,and more important,with you.
 > We shall meet in the place where there is no darkness,   
 > And express our opinions in the sunshine of freedom.    
 
-![风会停的，或许](IMG_8191 2.jpeg)
+![风会停的，或许](IMG_81912.jpeg)
 > 等到一切结束之后 风会停的 
 
 
