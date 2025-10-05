@@ -1,8 +1,8 @@
-# 您好呀 我是北桥川
+# 您好呀 我是棉花糖
 
 ## Hello World!
 
-Welcome to the Github account of Kitahasikawa/MisnCandy!     
+Welcome to the Github account of Akikawayuumi/MisnCandy!     
 Hope the words here can bring you some happiness, thinking, courage, touching and strength.    
 
 💬 zh/en is ok!  
