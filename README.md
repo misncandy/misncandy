@@ -2,7 +2,7 @@
 
 ## Hello World!
 
-Welcome to the Github account of Akikawayuumi/MisnCandy!     
+Welcome to the Github account of Arikawayuumi/MisnCandy!     
 Hope the words here can bring you some happiness, thinking, courage, touching and strength.    
 
 💬 zh/en is ok!  
